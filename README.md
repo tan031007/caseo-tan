@@ -18,4 +18,4 @@ wuthering waves, free fire, mobile legends, etc. (∩^o^)⊃━ ☆
    > quannnic +_+          (ノω<。)ノ))☆.。   ;;      ,,  (etc!
 
 (づ￣ 3￣)づ  https://open.spotify.com/playlist/0h2v7HrBzogUFkXULSMuyO?si=1f5c43dc23cc42ea  o(*￣▽￣*)o            
-      (￣o￣) . z Z   i listen to it everyday! go and try to listen to it!  (_　_)。゜zｚＺ.
+      (￣o￣) . z Z   ';   - `   (_　_)。゜zｚＺ.    ~~ .
