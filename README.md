@@ -7,7 +7,8 @@
 wuthering waves, free fire, mobile legends, etc. (∩^o^)⊃━ ☆
 
       i listens to music with emo rocks, shoegazee, alternative rocks, n many other genres! =￣ω￣=
-  my favorite artist is :            -            .            ` ☆⌒(*＾-゜)v  '';
+  my favorite artist is :            -            .         ` ☆⌒(*＾-゜)v  '';
+  
    > whatsaheart >_<        --    ο(=•ω＜=)ρ⌒☆
    > divine intentions O.O  '            `           (￣﹃￣)  .       =;;
    > zeruel ^_+
