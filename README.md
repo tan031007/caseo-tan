@@ -19,3 +19,6 @@ wuthering waves, free fire, mobile legends, etc. (∩^o^)⊃━ ☆
 
 (づ￣ 3￣)づ  https://open.spotify.com/playlist/0h2v7HrBzogUFkXULSMuyO?si=1f5c43dc23cc42ea  o(*￣▽￣*)o            
       (￣o￣) . z Z   ';   - `   (_　_)。゜zｚＺ.    ~~ .
+
+
+      i had no idea.
